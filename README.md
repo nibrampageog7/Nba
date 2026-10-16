@@ -215,4 +215,4 @@ NBA 2K20 is available as a complete free version, with all features and updates 
 Download NBA 2K20 today and take your basketball gaming experience to the next level! Don't miss out on the action!
 
 ---
-**Last updated:** 2026-10-16 19:21:10 UTC
+**Last updated:** 2026-10-16 22:34:47 UTC
